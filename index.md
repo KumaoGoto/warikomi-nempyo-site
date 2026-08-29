@@ -31,7 +31,7 @@ A. どちら側に置いても正解です。判定のあとの画面で、実�
 
 不具合の報告やご要望は、次の連絡先までお願いします。
 
-kumaogoto1108@gmail.com
+support.kumaogoto@gmail.com
 
 ## プライバシーポリシー
 

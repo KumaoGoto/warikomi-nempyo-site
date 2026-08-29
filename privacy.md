@@ -92,7 +92,7 @@ App内課金「広告を消す」を購入すると、広告は表示されな�
 
 本ポリシーに関するお問い合わせは、次の連絡先までお願いします。
 
-kumaogoto1108@gmail.com
+support.kumaogoto@gmail.com
 
 ---
 
